@@ -1,1 +1,1 @@
-# kilinika bu prjectlarimdan biri
+# kilinika bu projectlarimdan biri
