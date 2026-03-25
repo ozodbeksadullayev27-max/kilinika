@@ -1,1 +1,1 @@
-# kilinika
+# kilinika bu prjectlarimdan biri
